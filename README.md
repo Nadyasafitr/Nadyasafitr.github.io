@@ -1,1 +1,0 @@
-# Nadyasafitr.github.io
